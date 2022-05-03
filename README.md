@@ -1,3 +1,2 @@
 # Resursnaya-Vedomost-ERP
 
-sdasdasd
